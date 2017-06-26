@@ -1,2 +1,2 @@
 # Obscuris
-A mind-altering does of reality
+A mind-altering dose of reality
